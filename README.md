@@ -1,1 +1,0 @@
-# Arthur-Ruiz-Garcia.github.io
